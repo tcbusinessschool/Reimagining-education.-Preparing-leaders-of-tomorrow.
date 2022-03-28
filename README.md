@@ -1,2 +1,1 @@
-# Reimagining-education.-Preparing-leaders-of-tomorrow.
-The institute is a dynamic &amp; welcoming place where students are inspired, engaged and challenged personally and intellectually. The Institute is involved in providing better environment of learning, experiencing and experimenting. Students are trained through this programme to cover all the aspects of learning. TCBS, Jaipur offers the best MBA/BNA/BCA programme in Rajasthan. Regular up-gradation in course curriculum helps the students in meeting the expectations of today’s evolving and demanding business world.
+
